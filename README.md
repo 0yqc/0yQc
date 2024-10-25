@@ -6,7 +6,9 @@
 
 **Minecraft Name:**	_yQc
 
-**Rebrickable Name:**[^1]	[yQc](https://rebrickable.com/users/yQc/)
+**Rebrickable[^1] Name:**	[yQc](https://rebrickable.com/users/yQc/)
+
+**Youtube Handle:** [_yQc](https://youtube.com/@_yQc)
 
 **IRL Name:**	Luna
 
