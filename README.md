@@ -19,4 +19,4 @@ Hi!
 
 I'm Luna, and you found my profile, congratulations! For now, I just want to host an github.io page ([https://0yqc.github.io/](https://0yqc.github.io/)) to showcase some of my projects
 
-[^1]: This is a LEGO® Website (mainly) for sharing Custom Designs (MOC: My Own Creation), [check them out!](https.//rebrickable.com/)
+[^1]: This is a LEGO® Website (mainly) for sharing Custom Designs (MOC: My Own Creation), [check them out!](https://rebrickable.com/)
