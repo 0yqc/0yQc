@@ -4,15 +4,15 @@
 
 **Github Name:**	[0yQc](https://github.com/0yqc/)
 
-**Minecraft Name:**	_yQc
+**Minecraft Name:**	0yqc
 
-**Rebrickable[^1] Name:**	[yQc](https://rebrickable.com/users/yQc/)
+**Rebrickable[^1] Name:**	[yqc](https://rebrickable.com/users/yqc/)
 
 **Youtube Handle:** [_yQc](https://youtube.com/@_yQc)
 
 **IRL Name:**	Luna
 
-**Pronouns:**	she/her (feminin)
+**Pronouns:**	she/her (feminin) or neutral (e.g. they/them)
 
 ## Text
 Hi!
